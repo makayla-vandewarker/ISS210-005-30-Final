@@ -13,5 +13,5 @@ https://www.youtube.com/watch?v=suoXz3Wc5As. Affect of COVID-19 on Food Insecuri
 https://www.csis.org/analysis/russia-ukraine-and-global-food-security-one-year-assessment#:~:text=First%2C%20though%20Russia%27s%20war%20in,over%20the%20past%2012%20months.
 https://www.wfp.org/global-hunger-crisis#:~:text=2023%3A%20Another%20year%20of%20extreme,double%20the%20number%20in%202020.
 https://www.chn.org/voices/food-insecurity-is-already-a-huge-problem-for-the-u-s-in-2023-it-may-get-worse/
-https://www.eeas.europa.eu/eeas/food-insecurity-time-act-now_en
-https://www.azquotes.com/quote/787313
+https://www.eeas.europa.eu/eeas/food-insecurity-time-act-now_en Josep Act Now Quote. 
+https://www.azquotes.com/quote/787313 Martin Luther King Jr. Quote 
