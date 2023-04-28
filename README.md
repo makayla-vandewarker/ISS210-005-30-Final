@@ -14,3 +14,4 @@ https://www.csis.org/analysis/russia-ukraine-and-global-food-security-one-year-a
 https://www.wfp.org/global-hunger-crisis#:~:text=2023%3A%20Another%20year%20of%20extreme,double%20the%20number%20in%202020.
 https://www.chn.org/voices/food-insecurity-is-already-a-huge-problem-for-the-u-s-in-2023-it-may-get-worse/
 https://www.eeas.europa.eu/eeas/food-insecurity-time-act-now_en
+https://www.azquotes.com/quote/787313
